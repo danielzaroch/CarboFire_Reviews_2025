@@ -178,7 +178,11 @@ The supplement industry is saturated with **generic fat burners**, many of which
 - **No Harmful Synthetic Additives** – Free from artificial chemicals commonly found in lower-quality supplements.
 - **Budget-Friendly Alternative** – Compared to expensive prescription drugs like Ozempic, CarboFire is an **affordable and accessible option** for those seeking natural weight loss.
 
-**ff3**
+<p align="center">
+  <a href="https://031a0dbj6wq4cxayvxkb06vnek.hop.clickbank.net">
+    <img src="https://i.imgur.com/7sn1DyQ.png" width="640">
+  </a>
+</p>
 
 ## ****CarboFire Customer Reviews: What Are People Saying?****
 
