@@ -385,12 +385,7 @@ If you’re serious about **losing weight efficiently**, CarboFire is definitely
   <a href="https://031a0dbj6wq4cxayvxkb06vnek.hop.clickbank.net">
     <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
   </a>
-</p><p align="center">
-  <a href="https://031a0dbj6wq4cxayvxkb06vnek.hop.clickbank.net">
-    <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
-  </a>
 </p>
-
 
 ➡️ [Get CarboFire Now](https://031a0dbj6wq4cxayvxkb06vnek.hop.clickbank.net)
 
